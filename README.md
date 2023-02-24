@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @madhanmohan1320
 - 👀 I’m interested in developing
-- 🌱 I’m currently studying Btech
 - 💞️ I’m looking to collaborate on developing immediately
 - 📫 How to reach me , you can reach me by DM
 
